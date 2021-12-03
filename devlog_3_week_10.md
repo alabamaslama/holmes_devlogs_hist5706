@@ -1,0 +1,10 @@
+
+# Sammy's Devlog 3, Week 10 (but a few days late)
+
+So sorry that this is a few days late- the semester seems to have picked up out of nowhere! 
+
+Compared to everyone else's devlog, I feel like I don't have as many updates as all of my peers! I have begun to create a Google Sites to display this project, as well as the final projection recording, the videos themselves, and my resulting paradata. Sadly, I have been waiting on a USP to HDMI cord in order to connect the projector to my computer, so I haven't had the opportunity yet to project, but I have had the opportunity to record my 'listening to oral history' videos that will be used for the projection. My goal is that I will finish up the website and my recording so then I have all of this weekend and the following week to finish the actual projecting piece! The cord that I am waiting on arrives sometime today, so I am patiently waiting to begin! 
+
+I have also chosen the specific building that I am going to project my video on, and have already put it up on my wall. I am going to project upon the Department of National Defence Headquarters building, also known as the Major General George R. Pearkes Building. I think this is the perfect symbolic place to project this history upon because it was the space which housed the Department of National Defence throughout the Cold War, specifically during when the LGBT Purge was happening. On a technical basis as well, the building is pretty flat, with a lot of windows, but a more neutral colour that will conduct well for a projection to be displayed on. Although it is a little distanced from Parliament, you can view it from the War Memorial on Elgin Street, so I think it still has an important viewpoint, either from being viewed right in front of the building, or seeing it from afar at a different memorial commemorating the sacrifices of all who served in the Canadian military. 
+
+I am a little worried about time, but I hope that my efforts to get ahead in other parts of this project will allow me the time to solely focus on the projection next week, so then I can have everythng done by December 10th! 
